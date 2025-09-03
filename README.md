@@ -1,1 +1,1 @@
-# Seoul-Work-Journey
+# Work-Journey
